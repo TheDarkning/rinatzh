@@ -1,1 +1,1 @@
-# rinatzh.github.io
+# rinatzh
